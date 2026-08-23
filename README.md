@@ -1,1 +1,0 @@
-# SBERGENG_TASK_3
